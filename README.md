@@ -1,1 +1,1 @@
-curriculum para empresas e hunters ou colaboradores RH.
+JUSCELINO MOREIRA DA SILVA |   ANALISTA INFRAESTRUTURA
